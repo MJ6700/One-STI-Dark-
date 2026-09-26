@@ -1,2 +1,0 @@
-# One-STI-Dark-
-GG
